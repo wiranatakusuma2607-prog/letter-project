@@ -1,2 +1,9 @@
-# letter-project
-"i hope you read this, even if it's too late."
+To my dearest Halika
+
+Sometimes, friendship doesn’t shine through big moments, but through the little things that stay with us. For me, that’s you. You’re the one who makes school days brighter with your laughter, your endless yapping, and your silly jokes. Even when you’re annoying (and you know you can be, haha), you’re still the person who makes me feel at home in the middle of all the chaos.
+
+You’ve shown me what kindness really looks like — not in big dramatic ways, but in the quiet ones. Like when I’m broke and you lend me money so I can still enjoy snacks at school. Those things might seem small, but to me they mean the world. They remind me that you’re not just my friend, you’re the kind of friend who always shows up in the simplest yet most meaningful ways.
+
+You are loud, funny, caring, sometimes annoying, but always real. That’s what I love about you. Thank you for being my partner in laughter, in chaos, and even in broke moments. You’re truly one of a kind, Halika — and I’m so glad that I get to call you my best friend.
+
+With Love, Gyagacoan
